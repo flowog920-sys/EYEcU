@@ -1,2 +1,0 @@
-# EYEcU
-Full ops center
